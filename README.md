@@ -7,7 +7,7 @@
 > [!TIP]
 <ins> Lưu ý mình chỉ để xuất để các bạn hoàn thiển sản phẩm, mình không phải nhà bán hàng, những sản phẩm này mình đã mua về làm thử và đã **Thành Công** rồi nền các bạn cứ yên tâm nha. Cảm ơn các bạn đã quan tâm 😜 
 # Hướng Dẫn Cách Nạp:
-Các bạn tải về và sau đó mở Image Tool như video này:<br/>
+Các bạn tải về và sau đó mở Image Tool cài đặt như video này:<br/>
  **https://youtu.be/q96H-Iu4dWs?si=32a8rS19QaVONGeP** <br/> <br/>
 | RTL8720DN  | TFT ST77xx  |
 |------------|-------------|
