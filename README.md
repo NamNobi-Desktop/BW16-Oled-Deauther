@@ -1,9 +1,9 @@
 # Sản Phẩm Để Hoàn Thiện :
-**Mạch Bw16:** **https://s.shopee.vn/8pXppMbb1e** <br/> <br/>
-**Màn Hình:** **https://s.shopee.vn/8zrG1faxgf** <br/>  <br/>
-**Nút Bấm:** **https://s.shopee.vn/9AAgDyaKLg** <br/>  <br/>
-**Dây Kết Nối:** **https://s.shopee.vn/6fTLFNjqQB**   <br/>  <br/>
-
+**Mạch Bw16:** **https://s.shopee.vn/4q3cek7TOQ** (Bạn có thể chọn loại chưa nạp code để đỡ tốn tiền code )<br/> <br/>
+**Màn Hình:** **https://s.shopee.vn/3AvOfywAtv** (Chọn loại 1.8 inh vì code phù hợp với loại này thôi )<br/>  <br/>
+**Nút Bấm:** **https://s.shopee.vn/6poh2tAHTN** (Nhớ chọn kích thước phù hợp nha )<br/>  <br/>
+**Dây Kết Nối:** **https://s.shopee.vn/5AgT43AhBL** (Chọn loại Cái + Cái nếu không dùng mạch PCB nha)   <br/>  <br/>
+**Mạch PCB:** **https://s.shopee.vn/20jRIo2mHK** (Chọn đúng kích thước mong muốn là được )<br/>  <br/>
 > [!TIP]
 <ins> Lưu ý mình chỉ để xuất để các bạn hoàn thiển sản phẩm, mình không phải nhà bán hàng, những sản phẩm này mình đã mua về làm thử và đã **Thành Công** rồi nền các bạn cứ yên tâm nha. Cảm ơn các bạn đã quan tâm 😜 
 # Hướng Dẫn Cách Nạp:
