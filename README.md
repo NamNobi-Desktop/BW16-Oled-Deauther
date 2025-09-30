@@ -1,5 +1,5 @@
 # Sản Phẩm Để Hoàn Thiện :
-**Mạch Bw16:** **https://s.shopee.vn/4q3cek7TOQ** (Bạn có thể chọn loại chưa nạp code để đỡ tốn tiền code )<br/> <br/>
+**Mạch Bw16:** **https://s.shopee.vn/6VEQ3crzwk** (Bạn có thể chọn loại chưa nạp code để đỡ tốn tiền code )<br/> <br/>
 **Màn Hình:** **https://s.shopee.vn/3AvOfywAtv** (Chọn loại 1.8 inh vì code phù hợp với loại này thôi )<br/>  <br/>
 **Nút Bấm:** **https://s.shopee.vn/6poh2tAHTN** (Nhớ chọn kích thước phù hợp nha )<br/>  <br/>
 **Dây Kết Nối:** **https://s.shopee.vn/5AgT43AhBL** (Chọn loại Cái + Cái nếu không dùng mạch PCB nha)   <br/>  <br/>
